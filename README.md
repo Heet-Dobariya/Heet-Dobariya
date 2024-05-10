@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Heet-Dobariya
-- 👀 I’m interested in Android App Developer
+- 👀 I’m interested in Android App Development.
 - 🌱 I’m currently learning in B.Tech Computer Science and Technology
 - 📫 How to reach me :  # (+91-9574613801) && # (mr.heet09@gmail.com)
 - ⚡ Fun fact: Reading Books
